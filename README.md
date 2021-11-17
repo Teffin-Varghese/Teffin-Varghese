@@ -1,4 +1,8 @@
-### Hi there, I'm Teffin Varghese 👋
-
-## I'm a Systems Administrator!
-- 🌱 I’m currently learning everything 🤣
+### I'm Teffin Varghese 👋
+## Tech Enthusiast
+## Systems Administrator!
+## Linux Admin
+## Tech Blogger
+## Crypto Supporter
+## Blockchain Supporter
+🌱 I’m currently learning everything 🤣
