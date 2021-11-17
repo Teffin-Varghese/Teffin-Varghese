@@ -1,4 +1,4 @@
-## Me Teffin Varghese 👋
+## Im Teffin Varghese 👋
 ### Tech Enthusiast
 ### Systems Administrator!
 ### Linux Admin
