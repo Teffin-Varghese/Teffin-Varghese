@@ -2,7 +2,7 @@
 ### Tech Enthusiast
 ### Systems Administrator!
 ### Linux Admin
-### Tech Blogger
+### Tech Blogger https://techridez.com/
 ### Crypto Supporter
 ### Blockchain Supporter
 ### Cyber Security
