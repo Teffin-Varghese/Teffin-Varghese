@@ -8,5 +8,5 @@
 ### Raspberry Pi Lover
 ### Linux
 ### Cloud
-### Coding noobie
+### Coding noobe
 🌱 I’m currently learning everything...
